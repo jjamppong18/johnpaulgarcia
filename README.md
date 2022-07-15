@@ -30,3 +30,16 @@
 
 ![wordpress](https://user-images.githubusercontent.com/79590422/179249808-64ee85d9-e030-423e-8491-88ea7c454c1a.png)
 
+![skill-test](https://user-images.githubusercontent.com/79590422/179252541-16565ba7-d619-437c-8cc7-84907bb2fe52.png)
+
+
+https://user-images.githubusercontent.com/79590422/179253042-e603c122-b1c0-4f05-8caa-3b3a2aa0229a.mp4
+
+https://user-images.githubusercontent.com/79590422/179253390-12f622ff-dc52-44fa-a8be-f51f39c293bd.mp4
+
+https://user-images.githubusercontent.com/79590422/179253646-6fd5d474-b4e1-4d11-866b-2b805009cea9.mp4
+
+[GarciaFinal.zip](https://github.com/jjamppong18/johnpaulgarcia/files/9122005/GarciaFinal.zip)
+
+[Garcia.zip](https://github.com/jjamppong18/johnpaulgarcia/files/9122007/Garcia.zip)
+
